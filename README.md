@@ -17,5 +17,7 @@ Characters can be repeated; they're not singular.**
 [colunAAAA](https://github.com/colunAAAA) is pony town's **PEARL (BRAWL STARS)**!
 
 [finnism](https://github.com/finnism) is pony town's **TARTAGLIA**!
+
 [Chemicalshot](https://github.com/chemicalshot) is pony town's **WEMMBU**!
+
 [finnism](https://github.com/finnism) is pony town's **BEST CHILDE AND ZHONGLI KISSER**!
