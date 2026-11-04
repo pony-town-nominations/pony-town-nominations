@@ -23,3 +23,10 @@ Characters can be repeated; they're not singular.**
 [finnism](https://github.com/finnism) is pony town's **BEST CHILDE AND ZHONGLI KISSER**!
 
 [purefatal](https://github.com/purefatal) is pony town's **SCARAMOUCHE**!
+
+[s9oke](https://github.com/s9oke) is pony town's **ROSHAMBOGAMES**!
+
+[exorpirate](https://github.com/exorpirate) is pony town's **MEDKIT (PHIGHTING)**!
+
+[maapicc](https://github.com/maapicc) is pony town's **MAAPICC**!
+[maapicc](https://github.com/maapicc) is pony town's **TORD**!
