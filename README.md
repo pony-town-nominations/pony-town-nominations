@@ -21,3 +21,5 @@ Characters can be repeated; they're not singular.**
 [Chemicalshot](https://github.com/chemicalshot) is pony town's **WEMMBU**!
 
 [finnism](https://github.com/finnism) is pony town's **BEST CHILDE AND ZHONGLI KISSER**!
+
+[purefatal](https://github.com/purefatal) is pony town's **SCARAMOUCHE**!
