@@ -31,3 +31,5 @@ Characters can be repeated; they're not singular.**
 [maapicc](https://github.com/maapicc) is pony town's **MAAPICC**!
 
 [maapicc](https://github.com/maapicc) is pony town's **TORD**!
+
+[denguemon](https://github.com/denguemon) and [pawzu](https://github.com/pawzu) are pony town's **SHIN JOONG HYUN AND KON-CHI (MI-IN/A BEAUTY, 1975)**!
