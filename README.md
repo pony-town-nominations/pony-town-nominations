@@ -41,3 +41,5 @@ Characters can be repeated; they're not singular.**
 [panacealove](https://github.com/panacealove) is pony town's **PARROTX2**!
 
 [aave-aarnivalkea](https://github.com/aave-aarnivalkea) is pony town's **FLINS**!
+
+[tomatosu](https://github.com/tomatosu) is pony town's **SASUKE UCHIHA**!
