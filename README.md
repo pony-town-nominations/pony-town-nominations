@@ -43,3 +43,5 @@ Characters can be repeated; they're not singular.**
 [aave-aarnivalkea](https://github.com/aave-aarnivalkea) is pony town's **FLINS**!
 
 [tomatosu](https://github.com/tomatosu) is pony town's **SASUKE UCHIHA**!
+
+[rydenyuri](https://github.com/rydenyuri) is pony town's **RYAN ROSS (PANIC! AT THE DISCO)**!
