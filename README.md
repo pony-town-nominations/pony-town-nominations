@@ -29,7 +29,7 @@ Characters can be repeated; they're not singular.**
 
 [exorpirate](https://github.com/exorpirate) is pony town's **MEDKIT (PHIGHTING)**‼️
 
-[maapicc](https://github.com/maapicc) is pony town's **MAAPICC**‼️
+[maapicc](https://github.com/maapicc) is pony town's **MAPICC**‼️
 
 [maapicc](https://github.com/maapicc) is pony town's **TORD**‼️
 
