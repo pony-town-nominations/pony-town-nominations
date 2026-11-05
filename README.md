@@ -7,7 +7,7 @@ Characters can be repeated; they're not singular.**
 **[Nominate someone](https://nominationspt.atabook.org/?page=1) (do not spam)**
 
 
-# START OF LIST
+# START OF THE LIST
 [THEMOONHAUNTS-YOU](https://github.com/THEMOONHAUNTS-YOU) is pony town's **SHADOW THE HEDGEHOG**!
 
 [THEMOONHAUNTS-YOU](https://github.com/THEMOONHAUNTS-YOU) is pony town's **MARC SPECTOR**!
