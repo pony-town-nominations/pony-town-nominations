@@ -4,6 +4,7 @@ Rules:
 Someone can be nominated more than once;
 Characters can be repeated; they're not singular.**
 
+**If your nomination isn't listed, even after people sent messages after you and they are, we couldn't find your github. Make sure to re-send the message and check if there's something wrong**
 **[Nominate someone](https://nominationspt.atabook.org/?page=1) (do not spam)**
 
 
@@ -45,3 +46,37 @@ Characters can be repeated; they're not singular.**
 [tomatosu](https://github.com/tomatosu) is pony town's **SASUKE UCHIHA**!
 
 [rydenyuri](https://github.com/rydenyuri) is pony town's **RYAN ROSS (PANIC! AT THE DISCO)**!
+
+[rydenyuri](https://github.com/rydenyuri) and [lonesomestreet](https://github.com/lonesomestreet) are pony town's **DAMON AND GRAHAM (BLUR)**!
+
+[nexxiro](https://github.com/nexxiro) is pony town's **WADE HERBERT**!
+
+[FLORAISONS](https://github.com/FLORAISONS) is pony town's **DUSEKKAR**!
+
+[Steampunked-Ghoul](https://github.com/Steampunked-Ghoul) is pony town's **TELAMON (ROBLOX ADMINS)**!
+
+[disorderlyfashion](https://github.com/disorderlyfashion) is pony town's **SQUIRRELFLIGHT**!
+
+[yaoiautism](https://github.com/yaoiautism) is pony town's **DOL9HIN**!
+
+[yunilaili](https://github.com/yunilaili) is pony town's **XELADRAG (THE VOID CULT)**!
+
+[RE0-MIKAGE](https://github.com/RE0-MIKAGE) is pony town's **REO MIKAGE**!
+
+[lalleshwariii](https://github.com/lalleshwariii) is pony town's **BRYAN HODUKAVICH**!
+
+[mustard-fragger](https://github.com/mustard-fragger) is pony town's **MAGNA SWING**!
+
+[hwobae](https://github.com/hwobae) is pony town's **HWOARANG**!
+
+[XNPXO](https://github.com/XNPXO) is pony town's **PANTALONE**!
+
+[wholesome-rockstar](https://github.com/wholesome-rockstar) is pony town's **DAN HENG AND KAVEH KISSER**!
+
+[BuddyTheUnicorns](https://github.com/BuddyTheUnicorns) is pony town's **BUDDY THE UNICORN (IT'S BUDDY!)**!
+
+[bastetngeb](https://github.com/bastetngeb) is pony town's **SHUUJI FUJIGAWA (DANGANRONPA GAIDEN: KILLER KILLER)**!
+
+[Puristix](https://github.com/Puristix) is pony town's **SEBASTIAN MICHAELIS**!
+
+[twottimey](https://github.com/twottimey) is pony town's **TWO TIME**!
