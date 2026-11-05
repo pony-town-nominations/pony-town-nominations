@@ -33,3 +33,9 @@ Characters can be repeated; they're not singular.**
 [maapicc](https://github.com/maapicc) is pony town's **TORD**!
 
 [denguemon](https://github.com/denguemon) and [pawzu](https://github.com/pawzu) are pony town's **SHIN JOONG HYUN AND KON-CHI (MI-IN/A BEAUTY, 1975)**!
+
+[naturalharmoniaa](https://github.com/naturalharmoniaa) is pony town's **NATURAL HARMONIA GROPIUS, AKA N**!
+
+[thesorrowingbody](https://github.com/thesorrowingbody) is pony town's **SUNDAY (HONKAI STAR RAIL)**!
+
+[panacealove](https://github.com/panacealove) is pony town's **PARROTX2**!
