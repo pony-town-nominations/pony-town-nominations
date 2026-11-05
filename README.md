@@ -39,3 +39,5 @@ Characters can be repeated; they're not singular.**
 [thesorrowingbody](https://github.com/thesorrowingbody) is pony town's **SUNDAY (HONKAI STAR RAIL)**!
 
 [panacealove](https://github.com/panacealove) is pony town's **PARROTX2**!
+
+[aave-aarnivalkea](https://github.com/aave-aarnivalkea) is pony town's **FLINS**!
