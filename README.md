@@ -91,3 +91,20 @@ Characters can be repeated; they're not singular.**
 
 [fallenssoul](https://github.com/fallenssoul) is pony town's **CHARA (UNDERTALE)**‼️
 
+[hiralova](https://github.com/hiralova) is pony town's **AZURE (FORSAKEN)**‼️
+
+[A-Regect](https://github.com/A-Regect) is pony town's **MIAMI MORTY (RICK & MORTY)**‼️
+
+[A-Regect](https://github.com/A-Regect) is pony town's **OPERATOR (NULLSCAPE)**‼️
+
+[Avery-whatsinyourinventory](https://github.com/Avery-whatsinyourinventory) is pony town's **COLDFIED**‼️
+
+[LEOWOOKFAN](https://github.com/LEOWOOKFAN) is pony town's **LEOWOOK**‼️
+
+[opioiid](https://github.com/opioiid) is pony town's **HOT PANTS (JJBA - STEEL BALL RUN)**‼️
+
+[mydeiirl](https://github.com/mydeiirl) is pony town's **MYDEI (HONKAI STAR RAIL)**‼️
+
+[Iwasbehindit](https://github.com/Iwasbehindit) is pony town's **STEVEN GRANT**‼️
+
+[Iwasbehindit](https://github.com/Iwasbehindit) is pony town's **ALEX KRALIE (MARBLE HORNETS)**‼️
