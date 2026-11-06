@@ -77,6 +77,10 @@ Characters can be repeated; they're not singular.**
 
 [bastetngeb](https://github.com/bastetngeb) is pony town's **SHUUJI FUJIGAWA (DANGANRONPA GAIDEN: KILLER KILLER)**‼️
 
+[Puristix](https://github.com/Puristix) is pony town's **SEBASTIAN MICHAELIS**‼️
+
+[twottimey](https://github.com/twottimey) is pony town's **TWO TIME**‼️
+
 [Twixxel-Lessgo](https://github.com/Twixxel-Lessgo) is pony town's **TWIXXEL**‼️
 
 [cborle](https://github.com/cborle) is pony town's **FEINBERG**‼️
@@ -87,6 +91,3 @@ Characters can be repeated; they're not singular.**
 
 [fallenssoul](https://github.com/fallenssoul) is pony town's **CHARA (UNDERTALE)**‼️
 
-[Puristix](https://github.com/Puristix) is pony town's **SEBASTIAN MICHAELIS**‼️
-
-[twottimey](https://github.com/twottimey) is pony town's **TWO TIME**‼️
