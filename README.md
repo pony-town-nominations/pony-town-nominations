@@ -108,3 +108,15 @@ Characters can be repeated; they're not singular.**
 [Iwasbehindit](https://github.com/Iwasbehindit) is pony town's **STEVEN GRANT**‼️
 
 [Iwasbehindit](https://github.com/Iwasbehindit) is pony town's **ALEX KRALIE (MARBLE HORNETS)**‼️
+
+[2099s](https://github.com/2099s) is pony town's **MIGUEL O'HARA**‼️
+
+[aeth3rr](https://github.com/aeth3rr) is pony town's **LEWIS HAMILTON**‼️
+
+[Mustard-fragger](https://github.com/mustard-fragger) and [TapedJaden](https://github.com/TapedJaden) are pony town's **FLAMEFRAGS AND JADENMAN (BLAZETIDE DUO)**‼️
+
+[sugar-coatedtoast](https://github.com/sugar-coatedtoast) is pony town's **SPOKEISHERE**‼️
+
+[sharpestvictory](https://github.com/sharpestvictory), [ PinkInTheNight-FMNC](https://github.com/PinkInTheNight-FMNC), [NocturnalWhisper](https://github.com/NocturnalWhisper) and [bqssie](https://github.com/bqssie) are pony town's **EVIL ATTACK ADVENTURES**‼️
+
+[NocturnalWhisper](https://github.com/NocturnalWhisper) is pony town's **SKID'S DAD (SPOOKY MONTH)**‼️
