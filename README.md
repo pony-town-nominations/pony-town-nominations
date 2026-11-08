@@ -5,6 +5,7 @@ Someone can be nominated more than once;
 Characters can be repeated; they're not singular.**
 
 **If your nomination isn't listed, even after people sent messages after you and they are, we couldn't find your github. Make sure to re-send the message and check if there's something wrong**
+
 **[Nominate someone](https://nominationspt.atabook.org/?page=1) (do not spam)**
 
 **UPDATE:** ultimately things have been quite difficult for me. thank you for all the requests. They help me distracting myself, and they turned out to be something I enjoyed doing. thanks for all the support, guys :)
