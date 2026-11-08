@@ -121,3 +121,15 @@ Characters can be repeated; they're not singular.**
 [sharpestvictory](https://github.com/sharpestvictory), [ PinkInTheNight-FMNC](https://github.com/PinkInTheNight-FMNC), [NocturnalWhisper](https://github.com/NocturnalWhisper) and [bqssie](https://github.com/bqssie) are pony town's **EVIL ATTACK ADVENTURES**‼️
 
 [NocturnalWhisper](https://github.com/NocturnalWhisper) is pony town's **SKID'S DAD (SPOOKY MONTH)**‼️
+
+[witheringpetals](https://github.com/witheringpetals) is pony town's **AZURE (FORSAKEN)**‼️
+
+[wireplayer](https://github.com/wireplayer) is pony town's **BADWARE (DIE OF DEATH)**‼️
+
+[sharpestvictory](https://github.com/sharpestvictory) is pony town's **EIN (APHMAU SMP)**‼️
+
+[Jeverus](https://github.com/Jeverus) is pony town's **CRAZYBLOX (FLOOD ESCAPE)**‼️
+
+[firepup](https://github.com/firepup) is pony town's **MARSHALL (PAW PATROL)**‼️
+
+[
