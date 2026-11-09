@@ -119,7 +119,7 @@ Characters can be repeated; they're not singular.**
 
 [sugar-coatedtoast](https://github.com/sugar-coatedtoast) is pony town's **SPOKEISHERE**‼️
 
-[sharpestvictory](https://github.com/sharpestvictory), [ PinkInTheNight-FMNC](https://github.com/PinkInTheNight-FMNC), [NocturnalWhisper](https://github.com/NocturnalWhisper) and [bqssie](https://github.com/bqssie) are pony town's **EVIL ATTACK ADVENTURES**‼️
+[sharpestvictory](https://github.com/sharpestvictory), [ PinkInTheNight-FMNC](https://github.com/PinkInTheNight-FMNC), [NocturnalWhisper](https://github.com/NocturnalWhisper) and [hollylace](https://github.com/hollylace) are pony town's **EVIL ATTACK ADVENTURES**‼️
 
 [NocturnalWhisper](https://github.com/NocturnalWhisper) is pony town's **SKID'S DAD (SPOOKY MONTH)**‼️
 
@@ -135,3 +135,20 @@ Characters can be repeated; they're not singular.**
 
 [MYlastgoodby3](https://github.com/MYlastgoodby3) is pony town's **MIPHA (THE LEGEND OF ZELDA: BREATH OF THE WILD)**‼️
 
+[Whispedvanilla](https://github.com/Whispedvanilla) is pony town's **SLINGSHOT (PHIGHTING)**‼️
+
+[firepup](https://github.com/firepup) is pony town's **RED KISSER (RAINBOW FRIENDS)**‼️
+
+[LEOWOOKFAN](https://github.com/LEOWOOKFAN) is pony town's **1x1x1x1 KISSER**‼️
+
+[Mustard-fragger](https://github.com/mustard-fragger) is pony town's **KURO'S KISSER (SERVAMP)**‼️
+
+[senjurochistic](https://github.com/senjurochistic) is pony town's **SENJURO RENGOKU**‼️
+
+[god-of-stories](https://github.com/god-of-stories) is pony town's **LOKI LAUFEYSON**‼️
+
+[antoneIIi](https://github.com/antoneIIi) is pony town's **KIMI ANTONELLI**‼️
+
+[mydigitalescape](https://github.com/mydigitalescape) is pony town's **ROMEO MONTAGUE**‼️
+
+[mydigitalescape](https://github.com/mydigitalescape) is pony town's **ROBERT CHASE**‼️
