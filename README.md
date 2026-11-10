@@ -152,3 +152,13 @@ Characters can be repeated; they're not singular.**
 [mydigitalescape](https://github.com/mydigitalescape) is pony town's **ROMEO MONTAGUE**‼️
 
 [mydigitalescape](https://github.com/mydigitalescape) is pony town's **ROBERT CHASE**‼️
+
+[CloveredFields](https://github.com/CloveredFields) is pony town's **DIRECTORFIES**‼️
+
+[angelicr0t](https://github.com/angelicr0t) is pony town's **NURSE HARROW (DEADLOCK)**‼️
+
+[ cherrip1e](https://github.com/cherrip1e) is pony town's **INFERNUS (DEADLOCK)**‼️
+
+[rakviyem](https://github.com/rakviyem) is pony town's **YOURMIND (WONDERLAND.JAR)**‼️
+
+[Sanguinevampyre](https://github.com/Sanguinevampyre) is pony town's **BOOTHILL (HONKAI STAR RAIL)**‼️
