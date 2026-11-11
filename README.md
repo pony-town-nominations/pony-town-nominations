@@ -164,3 +164,13 @@ Characters can be repeated; they're not singular.**
 [Sanguinevampyre](https://github.com/Sanguinevampyre) is pony town's **BOOTHILL (HONKAI STAR RAIL)**‼️
 
 [buncest](https://github.com/buncest) is pony town's **MOMOSE MITSUKI**‼️
+
+[clonefieswhatdoesntexists](https://github.com/clonefieswhatdoesntexists) is pony town's **CLONEFIES**‼️
+
+[sanguinesilence](https://github.com/sanguinesilence) is pony town's **BLOT (DANDY'S WORLD)**‼️
+
+[yearningly](https://github.com/yearningly) is pony town's **KINICH (GENSHIN IMPACT)**‼️
+
+[irlkafkaxx](https://github.com/irlkafkaxx) is pony town's **KAFKA (HONKAI STAR RAIL)**‼️
+
+[PH4NT0MHIVE](https://github.com/PH4NT0MHIVE) is pony town's **CIEL PHANTOMHIVE**‼️
