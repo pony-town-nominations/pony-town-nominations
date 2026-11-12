@@ -174,3 +174,9 @@ Characters can be repeated; they're not singular.**
 [irlkafkaxx](https://github.com/irlkafkaxx) is pony town's **KAFKA (HONKAI STAR RAIL)**‼️
 
 [PH4NT0MHIVE](https://github.com/PH4NT0MHIVE) is pony town's **CIEL PHANTOMHIVE**‼️
+
+[Chemicalshot](https://github.com/Chemicalshot) and [Mustard-fragger](https://github.com/mustard-fragger) are pony town's **WEMMBU AND FLAMEFRAGS (IMPERIALFIRE DUO)**‼️
+
+[artexyc](https://github.com/artexyc) is pony town's **CRAIG TUCKER**‼️
+
+[fruitsaIad](https://github.com/fruitsaIad) is pony town's **MR. PUZZLES**‼️
