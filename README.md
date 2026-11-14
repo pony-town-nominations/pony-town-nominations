@@ -180,3 +180,5 @@ Characters can be repeated; they're not singular.**
 [artexyc](https://github.com/artexyc) is pony town's **CRAIG TUCKER**‼️
 
 [fruitsaIad](https://github.com/fruitsaIad) is pony town's **MR. PUZZLES**‼️
+
+[ ryomxnsukuna](https://github.com/ryomxnsukuna) is pony town's **RYOMEN SUKUNA**‼️
