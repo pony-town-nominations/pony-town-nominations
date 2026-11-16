@@ -187,6 +187,6 @@ Characters can be repeated; they're not singular.**
 
 [980S](https://github.com/980s) and [kagekauu](https://github.com/kagekauu) are pony town's **KYLE BROFLOVSKI AND ERIC CARTMAN**‼️
 
-[sicklyrose](https://github.com/sicklyrose) and [TravisTheRapid](https://github.com/TravisTheRapid) are **DEVIN WOLF AND TRAVIS RAPID (THE MOON I ROT BEHIND)**‼️
+[sicklyrose](https://github.com/sicklyrose) and [TravisTheRapid](https://github.com/TravisTheRapid) are pony town's **DEVIN WOLF AND TRAVIS RAPID (THE MOON I ROT BEHIND)**‼️
 
 [theleaderofnull](https://github.com/theleaderofnull) is pony town's **SQUIDDO**‼️
