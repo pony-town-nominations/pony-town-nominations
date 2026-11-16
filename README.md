@@ -182,3 +182,7 @@ Characters can be repeated; they're not singular.**
 [fruitsaIad](https://github.com/fruitsaIad) is pony town's **MR. PUZZLES**‼️
 
 [ ryomxnsukuna](https://github.com/ryomxnsukuna) is pony town's **RYOMEN SUKUNA**‼️
+
+[Grimembrace](https://github.com/Grimembrace) is pony town's **THE CELESTIAL (NULLSCAPE)**‼️
+
+[980S](https://github.com/980s) and [kagekauu](https://github.com/kagekauu) are pony town's **KYLE BROFLOVSKI AND ERIC CARTMAN**‼️
