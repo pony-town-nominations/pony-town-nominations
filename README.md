@@ -190,3 +190,7 @@ Characters can be repeated; they're not singular.**
 [sicklyrose](https://github.com/sicklyrose) and [TravisTheRapid](https://github.com/TravisTheRapid) are pony town's **DEVIN WOLF AND TRAVIS RAPID (THE MOON I ROT BEHIND)**‼️
 
 [theleaderofnull](https://github.com/theleaderofnull) is pony town's **SQUIDDO**‼️
+
+[tellthatmick](https://github.com/tellthatmick) is pony town's **VIC FUENTES**‼️
+
+[fizfies](https://github.com/fizfies) is pony town's **MANEPEAR**‼️
