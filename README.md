@@ -194,3 +194,11 @@ Characters can be repeated; they're not singular.**
 [tellthatmick](https://github.com/tellthatmick) is pony town's **VIC FUENTES**‼️
 
 [fizfies](https://github.com/fizfies) is pony town's **MANEPEAR**‼️
+
+[r0wlys](https://github.com/r0wlys) is pony town's **LINK (ZELDA: BREATH OF THE WILD)**‼️
+
+[SONNELLINOENTHUSIAST ](https://github.com/SONNELLINOENTHUSIAST) is pony town's **MAFIOSO (FORSAKEN)**‼️
+
+[junk-halo](https://github.com/junk-halo) is pony town's **KYLE RAYNER**‼️
+
+[T-wenty-four](https://github.com/T-wenty-four) is pony town's **GROX**‼️
