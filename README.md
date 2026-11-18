@@ -197,8 +197,18 @@ Characters can be repeated; they're not singular.**
 
 [r0wlys](https://github.com/r0wlys) is pony town's **LINK (ZELDA: BREATH OF THE WILD)**‼️
 
+[ultronirl](https://github.com/ultronirl) is pony town's **ULTRON**‼️
+
 [SONNELLINOENTHUSIAST ](https://github.com/SONNELLINOENTHUSIAST) is pony town's **MAFIOSO (FORSAKEN)**‼️
 
 [junk-halo](https://github.com/junk-halo) is pony town's **KYLE RAYNER**‼️
 
 [T-wenty-four](https://github.com/T-wenty-four) is pony town's **GROX**‼️
+
+[mortisfication](https://github.com/mortisfication) is pony town's **CHRIS REDFIELD**‼️
+
+[saucebxsss](https://github.com/saucebxsss) is pony town's **KATIEB**‼️
+
+[TOTAL-EXTERMINATION](https://github.com/TOTAL-EXTERMINATION) is pony town's **OO7N7**‼️
+
+[RufflesScug](https://github.com/RufflesScug) is pony towns **SCAVENGER (RAIN WORLD)**‼️
