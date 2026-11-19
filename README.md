@@ -209,7 +209,7 @@ Characters can be repeated; they're not singular.**
 
 [saucebxsss](https://github.com/saucebxsss) is pony town's **KATIEB**‼️
 
-[TOTAL-EXTERMINATION](https://github.com/TOTAL-EXTERMINATION) is pony town's **OO7N7**‼️
+[TOTAL-EXTERMINATION](https://github.com/TOTAL-EXTERMINATION) is pony town's **007N7**‼️
 
 [RufflesScug](https://github.com/RufflesScug) is pony towns **SCAVENGER (RAIN WORLD)**‼️
 
