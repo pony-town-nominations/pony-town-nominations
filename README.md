@@ -129,7 +129,7 @@ Characters can be repeated; they're not singular.**
 
 [sharpestvictory](https://github.com/sharpestvictory) is pony town's **EIN (APHMAU SMP)**‼️
 
-[Jeverus](https://github.com/Jeverus) is pony town's **CRAZYBLOX (FLOOD ESCAPE)**‼️
+[Jeverus](https://github.com/Jeverus) is pony town's **SLASHER (FORSAKEN)**‼️
 
 [firepup](https://github.com/firepup) is pony town's **MARSHALL (PAW PATROL)**‼️
 
@@ -212,3 +212,9 @@ Characters can be repeated; they're not singular.**
 [TOTAL-EXTERMINATION](https://github.com/TOTAL-EXTERMINATION) is pony town's **OO7N7**‼️
 
 [RufflesScug](https://github.com/RufflesScug) is pony towns **SCAVENGER (RAIN WORLD)**‼️
+
+[DYNAMIC-OPERATIVE-MOTHERBOARD](https://github.com/DYNAMIC-OPERATIVE-MOTHERBOARD) is pony town's **ITZSKEETXD662**‼️
+
+[DYNAMIC-OPERATIVE-MOTHERBOARD](https://github.com/DYNAMIC-OPERATIVE-MOTHERBOARD) is pony town's **MRDOOMBRINGER**‼️
+
+[AcxerSonnellino](https://github.com/AcxerSonnellino) is pony town's **GUEST 1337**‼️
