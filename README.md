@@ -218,3 +218,25 @@ Characters can be repeated; they're not singular.**
 [DYNAMIC-OPERATIVE-MOTHERBOARD](https://github.com/DYNAMIC-OPERATIVE-MOTHERBOARD) is pony town's **MRDOOMBRINGER**‼️
 
 [AcxerSonnellino](https://github.com/AcxerSonnellino) is pony town's **GUEST 1337**‼️
+
+[legendary-outlaw](https://github.com/legendary-outlaw) is pony town's **GAMORA**‼️
+
+[thirdlotusprince](https://github.com/thirdlotusprince) is pony town's **NE ZHA (LEGO MONKIE KID)**‼️
+
+[crazybloxer](https://github.com/crazybloxer) is pony town's **CRAZYBLOX**‼️
+
+[solomonsassistant](https://github.com/solomonsassistant) is pony town's **SOLOMON**‼️
+
+[yubelsrevenge](https://github.com/yubelsrevenge) is pony town's **JUDAI YUKI**‼️
+
+[chromisawakening](https://github.com/chromisawakening) is pony town's **CHROM (FIRE EMBLEM AWAKENING)**‼️
+
+[0SEVN7](https://github.com/0SEVN7) is pony town's **BANHAMMER (PHIGHTING)**‼️
+
+[DRAGULUST](https://github.com/DRAGULUST) is pony town's **DEAN WINCHESTER**‼️
+
+[ NariTheMakoSh4rk](https://github.com/NariTheMakoSh4rk) is pony town's **CONTRACTEE (FORSAKEN)**‼️
+
+[D3V0TION](https://github.com/D3V0TION) is pony town's **IVAN (BAD THINGS)**‼️
+
+[R3QUI3MSINN3R](https://github.com/R3QUI3MSINN3R) is pony town's **PIZZA GUY (PIZZA GAME BETA)**‼️
