@@ -225,7 +225,7 @@ Characters can be repeated; they're not singular.**
 
 [crazybloxer](https://github.com/crazybloxer) is pony town's **CRAZYBLOX**‼️
 
-[solomonsassistant](https://github.com/solomonsassistant) is pony town's **SOLOMON**‼️
+[solomonsassistant](https://github.com/solomonsassistant) is pony town's **SOLOMON (OBEY ME!)**‼️
 
 [yubelsrevenge](https://github.com/yubelsrevenge) is pony town's **JUDAI YUKI**‼️
 
@@ -240,3 +240,13 @@ Characters can be repeated; they're not singular.**
 [D3V0TION](https://github.com/D3V0TION) is pony town's **IVAN (BAD THINGS)**‼️
 
 [R3QUI3MSINN3R](https://github.com/R3QUI3MSINN3R) is pony town's **PIZZA GUY (PIZZA GAME BETA)**‼️
+
+[D3V0TION](https://github.com/D3V0TION) is pony town's **TWO TIME**‼️
+
+[NikaMokochi](https://github.com/NikaMokochi) is pony town's **PIZZA GUY (PIZZA GAME BETA)**‼️
+
+[Heart0fGold](https://github.com/Heart0fGold) and [Ham-milton](https://github.com/Ham-milton) are pony town's **MICHEL NEY AND JEAN LANNES (NAPOLEONIC WARS)**‼️
+
+[theultimatekohamster](https://github.com/theultimatekohamster) is pony town's **ITRAPPED**‼️
+
+[fizzingvix-byte](https://github.com/fizzingvix-byte) is pony town's **BARRY WILLIAMS (GUTS & BLACK POWDER)**‼️
