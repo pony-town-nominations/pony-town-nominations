@@ -274,3 +274,7 @@ Characters can be repeated; they're not singular.**
 [fizfies](https://github.com/fizfies) is pony town's **SPROUT (DANDY'S WORLD)**‼️
 
 [fizfies](https://github.com/fizfies) is pony town's **SOULVESTER (DANDY'S WORLD)**‼️
+
+[Qixinggx](https://github.com/Qixinggx) is pony town's **GANYU**‼️
+
+[URAV1TY](https://github.com/URAV1TY) is pony town's **STARFIRE**‼️
