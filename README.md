@@ -250,3 +250,27 @@ Characters can be repeated; they're not singular.**
 [theultimatekohamster](https://github.com/theultimatekohamster) is pony town's **ITRAPPED**‼️
 
 [fizzingvix-byte](https://github.com/fizzingvix-byte) is pony town's **BARRY WILLIAMS (GUTS & BLACK POWDER)**‼️
+
+[onemorewish](https://github.com/onemorewish) is pony town's **PRINCEZAM**‼️
+
+[starfollower](https://github.com/starfollower) is pony town's **ROCKET (PHIGHTING)**‼️
+
+[DucksEatBreads](https://github.com/DucksEatBreads) is pony town's **JOHN JONES (ABSOLUTE MARTIAN MANHUNTER)**‼️
+
+[cashreggister](https://github.com/cashreggister) is pony town's **GOOMY**‼️
+
+[DreamsAndRJX](https://github.com/DreamsAndRJX) is pony town's **ADAM SMASHER (CYBERPUNK)**‼️
+
+[DreamsAndRJX](https://github.com/DreamsAndRJX) is pony town's **PICASSO (PURE ROTTEN LIGHT)**‼️
+
+[MYBRIGHTESTST4R](https://github.com/MYBRIGHTESTST4R) is pony town's **HAEBEOM KWON (OUR SUNNY DAYS)**‼️
+
+[lacette](https://github.com/lacette) is pony town's **MISTER FANTASTIC**‼️
+
+[TONEDEAFF](https://github.com/TONEDEAFF) is pony town's **SIMON "GHOST" RILEY**‼️
+
+[TONEDEAFF](https://github.com/TONEDEAFF) is pony town's **REAPER (OVERWATCH)**‼️
+
+[fizfies](https://github.com/fizfies) is pony town's **SPROUT (DANDY'S WORLD)**‼️
+
+[fizfies](https://github.com/fizfies) is pony town's **SOULVESTER (DANDY'S WORLD)**‼️
